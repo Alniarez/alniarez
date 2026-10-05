@@ -4,6 +4,10 @@ I am J.Sierra, I go as Alniarez online.
 I use GitHub to dump some of the unimportant code I do recreationally on my free time.
 Don't expect anything good.
 
+No soliciting.
+
+Do check my website if you want to waste some time.
+
 ```
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣀⣀⣀⡀⠀⠖⠲⠤⣄⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⢀⣤⣄⣀⠀⠠⠚⠋⠀⠁⠈⠙⣢⡤⠖⡄⠀⠈⠉⠛⢦⣀⠀⠀⠀⠀⠀⠀⠀⠀

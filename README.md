@@ -1,12 +1,13 @@
 ## Hi there 👋
-I am J.Sierra, I go as Alniarez online. 
+I am J.Sierra, known as Alniarez online. 
 
-I use GitHub to dump some of the unimportant code I do recreationally on my free time.
-Don't expect anything good, this is just my digital junk drawer.
+I'm a software engineer working as a frontend developer in Karlsruhe, Germany. 
 
-No soliciting.
+I use GitHub as a digital junk drawer to dump the code I write recreationally in my free time. 
 
-Do check my website if you want to waste more time.
+No soliciting. 
+
+Check out my website if you want to waste some time.
 
 ```
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣀⣀⣀⡀⠀⠖⠲⠤⣄⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
